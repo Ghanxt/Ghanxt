@@ -5,6 +5,6 @@ Content Writer
 Social Media Marketing
  Rainmaker  Who’ll Help You Paint a Canvas for your Biz & Your Life!
 
- when I'm Not Keeping Busy with [hyCorve](https://www.hycorve.com), [Website](https://www.learnology.me) you can find me on  [Linkedin](https://www.linkedin.com/in/ghanxt/)
+ when I'm Not Keeping Busy with [hyCorve](https://www.hycorve.com), [Blog](https://blog.hycorve.com/) & [learnology](https://www.learnology.me)you can find me on  [Linkedin](https://www.linkedin.com/in/ghanxt/)
 
 Fun fact: Sometimes when I close my eyes, I can't see.
